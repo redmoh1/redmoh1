@@ -1,4 +1,4 @@
-#### Computer science student
+#### 🙋‍♂️ Hello, I am a Computer Science student
 
 ## 💻 Skills :
 
